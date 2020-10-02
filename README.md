@@ -5,7 +5,7 @@
 **About us**
 - 🔭 suka belajar hal-hal baru
 - 🌱 **Isi repositori tidak sepenuhnya hasil sendiri**
-- ✨  Semua project disini open source ( ˘ ³˘)♥
+- ✨  Semua project disini open source ♥
 - 🤔 Mau tanya tanya? [**whatsapp**](http://wa.me/6283871259489) 
 - 📫 [**Traktir Kopi 🗿**](https://trakteer.id/hamba%20allah)
 
